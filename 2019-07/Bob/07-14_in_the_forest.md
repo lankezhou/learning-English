@@ -85,6 +85,7 @@
 #### 17. Logs are generally used to make lumber to build houses. And sticks are used for, well, just about everything including roasting marshmallows on a fire, or maybe hot dogs.
 
 - log 原木
+- lumber ['lʌmbə] 木材
 - sticks [stiks] （stick复数形式）树枝
 - roasting marshmallow 烤棉花糖 ；roasting ['rostɪŋ]，marshmallow [mɑːʃ'mæləʊ] 棉花糖
 
