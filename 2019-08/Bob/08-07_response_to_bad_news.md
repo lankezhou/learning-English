@@ -59,7 +59,7 @@
 
 #### 14. So maybe someone has a brother who's constantly borrowing their car and bringing it back with the gas tank empty.
 
-- constantly ['kɒnst(ə)ntlɪ]
+- constantly ['kɒnst(ə)ntlɪ] 时常地
 - gas tank 汽车之油箱；tank [tæŋk] 箱
 
 #### 15.  "Oh I was bringing a cake to the table at my sister's birthday and I dropped it on the floor!" You could respond by saying, "Oh, that must have been a disaster!" or "Wow, that would be a real disaster!"
