@@ -22,7 +22,7 @@
 
 - semester [sɪ'mestə] 学期
 
-#### 5. or just to give you an update on how mylife is going. 
+#### 5. or just to give you an update on how my life is going. 
 
 - update 更新
 

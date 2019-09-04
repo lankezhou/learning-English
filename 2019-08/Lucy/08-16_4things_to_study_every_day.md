@@ -108,89 +108,13 @@
 #### 23. You study everyday, unless you take the half marathon where you study slightly less.
 
 - marathon ['mærəθ(ə)n] 马拉松
+- slightly ['slaɪtlɪ] 稍稍
 
-#### . And if you complete the marathon successfully, you get a 100% refund or a 50% refund if you do the half marathon.
+#### 24. And if you complete the marathon successfully, you get a 100% refund or a 50% refund if you do the half marathon.
 
 - refund [ˈriːfʌnd] 退款
 
-#### . That is such a great incentive that will really stop you from procrastinating.
+#### 25. That is such a great incentive that will really stop you from procrastinating.
 
 - incentive [ɪn'sentɪv] 激励
 - stop you from procrastinating 停止拖延；procrastinate [prə(ʊ)'kræstɪneɪt] 拖延
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
-#### . 
-
