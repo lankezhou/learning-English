@@ -8,7 +8,7 @@
 
 - demonstrate ['demənstreɪt] 证明
 
-#### 2. I think though, before we kick off this video, by the way, that's your secondphrasal verb already.
+#### 2. I think though, before we kick off this video, by the way, that's your second phrasal verb already.
 
 - kick off this video 开始这个视频；kick off 开始
 
@@ -65,7 +65,7 @@
 - a hose across our driveway 一条水管横过我们的车道；hose [həʊz] 软管，driveway ['draɪvweɪ] 私人车道
 - block off  封堵
 
-#### 15. So is there someone you know that you want to cheer up? Sometimesbuying someone something, will cheer them up.
+#### 15. So is there someone you know that you want to cheer up? Sometimes buying someone something, will cheer them up.
 
 - cheer up 使高兴
 

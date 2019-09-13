@@ -46,3 +46,4 @@
 
 - stick around 逗留
 - kitten ['kɪt(ə)n] 小猫
+
