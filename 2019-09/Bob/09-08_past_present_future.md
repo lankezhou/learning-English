@@ -4,7 +4,7 @@
 >
 > > Section：Let's learn English at a hotel
 
-#### 1. Many of you have asked me to do a video about those verb tenses and I thougnt what should do is go over five of the most important verbs that you need to know as an English learner.
+#### 1. Many of you have asked me to do a video about those verb tenses and I thougnt what should do is go over five of the most important verbs that you need to know as an English learner. 
 
 - tense [tens] 时态
 - go over 复习

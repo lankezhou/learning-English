@@ -4,7 +4,7 @@
 >
 > > Section：Learn How to Use Contractions to Sound Like a Native English Speaker
 
-#### 1. Welcome to this English lesson on contractions.
+#### 1. Welcome to this English lesson on contractions. 
 
 - contraction [kən'trækʃ(ə)n] 缩写式
 
