@@ -7,6 +7,7 @@
 #### 1. 'There's no place like home' This English saying has much truth in it: the best place to be is surrounded by our treasured possessions and our loved ones and with a roof over our head.
 
 - treasured possessions 珍贵的财产；treasured [ˈtreʒə(r)] 珍贵的，possessions [pə'zeʃənz] 财产
+- a roof over our head 住处
 
 #### 2. And for many yound adults, it's the only affordable place to stay; somewhere where they can receive first-class service from mum and dad.
 
@@ -30,7 +31,7 @@
 
 - statistics [stə'tɪstɪks] 统计
 - adult ['ædʌlt] 
-- figure  ['fɪgə] 数字 
+- figure ['fɪgə] 数字 
 
 #### 7. A survey by a price comparison website found that 18% of adult children in the UK said they were moving back home because of debt, compared with 8% last year.
 
