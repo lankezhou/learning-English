@@ -7,22 +7,3 @@
 #### 1. Welcome to this English lesson on contractions. 
 
 - contraction [kən'trækʃ(ə)n] 缩写式
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-

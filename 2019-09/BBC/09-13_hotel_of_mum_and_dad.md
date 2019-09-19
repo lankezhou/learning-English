@@ -9,7 +9,7 @@
 - treasured possessions 珍贵的财产；treasured [ˈtreʒə(r)] 珍贵的，possessions [pə'zeʃənz] 财产
 - a roof over our head 住处
 
-#### 2. And for many yound adults, it's the only affordable place to stay; somewhere where they can receive first-class service from mum and dad.
+#### 2. And for many young adults, it's the only affordable place to stay; somewhere where they can receive first-class service from mum and dad.
 
 - affordable [ə'fɔːdəbəl] 买得起
 
