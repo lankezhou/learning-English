@@ -88,5 +88,5 @@
 #### 18. The saying goes that 'a healthy body leads a healthy mind' which is probably why other people have recommended doing yoga and meditation as well as staying fit and healthy to help maintain a positive outlook on life.
 
 - meditation [medɪ'teɪʃ(ə)n] 冥想
-- maintain [meɪn'teɪn] 维持
+- maintain [meɪn'teɪn] 维持  
 
