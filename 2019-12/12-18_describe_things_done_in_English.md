@@ -55,3 +55,31 @@
 #### 11. It was beyond compare!
 
 - 这是无与伦比的
+
+#### 12. It means that visiting with your friend was really worthwhile, that you had great conversations.
+
+- worthwhile [ˌwɜːθˈwaɪl] 令人愉快的 
+
+#### 13. Maybe you were at a wedding or you were at a workshop where you needed to go upfront and you needed to give a speech in front of other people.
+
+- wedding [ˈwedɪŋ] 婚礼
+- workshop [ˈwɜːkʃɒp] 研讨会
+- go up front 去前面
+- give a speech 做演讲
+
+#### 14. It was moving.
+
+- 让人感动
+
+#### 15. It was a beautiful day, the bride was beautiful, the groom looked so handsome.
+
+- bride [braɪd] 新娘
+- groom [ɡruːm] 新郎
+
+#### 16. It was fantastic.
+
+- fantastic [fænˈtæstɪk] 太奇妙了
+
+#### 17. You could reply and say, "It was fantastic."
+
+- reply [rɪˈplaɪ] 回答
