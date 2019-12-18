@@ -59,7 +59,7 @@
 
 #### 12. And she advises that pessimists could benefit from doing things like imagining a future where everything turns out well.
 
-- pessimist ['pɛsɪmɪst] 悲观主义者
+- pessimist ['pesɪmɪst] 悲观主义者
 - turns out well 终于证明很不错
 
 #### 13. But if you're a 'glass half empty' type of person, could seeing the world through rose-tinted glasses work for you?
