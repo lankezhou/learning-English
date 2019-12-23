@@ -68,13 +68,3 @@
 #### 14. Maybe you like some sort of auto racing.
 
 - some sort of auto racing 某种赛车
-
-#### 15. 
-
-#### 16. 
-
-#### 17. 
-
-#### 18. 
-
-#### 19. 
