@@ -70,26 +70,56 @@
 
 - slippery [ˈslɪpəri] 滑的 
 
-#### 1.
+#### 15. Another English phrase with the word ice in it is as cold as ice.
 
-#### 1.
+- as cold as ice 冷若冰霜
 
-#### 1.
+#### 16. Because the precipitation today is coming down as rain, it actually drips on surfaces, and then it forms icicles. You can see here that we have some really cool icicles that are forming. 
 
-#### 1.
+- precipitation [prɪˌsɪpɪˈteɪʃn] 冰雹 
+- it forms icicles 它形成冰柱；icicle [ˈaɪsɪkl] 冰柱
 
-#### 1.
+#### 17. On my tractor you can see that there is a row of icicles.
 
-#### 1.
+- tractor [ˈtræktə(r)] 拖拉机
 
-#### 1.
+#### 18. The same will happen to our power lines.
 
-#### 1.
+- power lines 输电线
 
-#### 1.
+#### 19. So in fact, right now in the house, we are making sure that we are charing all of our flashlights, because when you get ice on power lines like this, the weight of the ice can make the power lines fall, and you can have a power outage.
 
-#### 1.
+- flashlight [ˈflæʃlaɪt] 手电筒
+- power outage 断电；outage [ˈaʊtɪdʒ] （电力等）停止供应期
 
-#### 1.
+#### 20. In English we say power outage to indicate a time when we have no working electricity in our homes or at our business.
 
-#### 1.
+- indicate [ˈɪndɪkeɪt] 表明
+
+#### 21. So it is incredibly dangerous on a day like this.
+
+- it is incredibly dangerous on a day like this 在这样的日子里是非常危险的；incredibly [ɪnˈkredəbli] 非常地
+
+#### 22. When we say in English that we're going to put something on ice, it means that we are going to put it on hold
+
+- put it on hold 搁置
+
+#### 23. Let me give you closer look.
+
+#### 24. So when you're on thin ice, it means you've made a few mistakes, and if you make another one, you will probably lose your job, or someone will be very very annoyed with you.
+
+- on thin ice 如履薄冰
+- someone will be very very annoyed with you 有人会非常非常生你的气
+
+#### 25. Here's some icicles on this wagon.
+
+- wagon [ˈwæɡən] 货车
+
+#### 26. I almost slipped just now, by the way, it's very very slippery.
+
+- I almost slipped just now 我刚才差点滑倒
+
+#### 27. When something is slippery, in English, in means it's easy to slide on it, and lose your balance.
+
+- it's easy to slide on it 很容易滑过去
+- lose your balance 失去平衡
