@@ -70,5 +70,6 @@
 
 #### 13. That's before they learn a home truth – that one day it might be their own kids who'll be checking into the hotel of mum and dad!
 
+- home truth 令人不愉快的事情
 - 这是在他们了解一个家庭真相之前，有一天可能是他们自己的孩子将入住父母的酒店
 
