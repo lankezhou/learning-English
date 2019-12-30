@@ -24,6 +24,7 @@
 
 - 一个城市的规范不一定是另一个城市的规范
 - norm [nɔːm] 规范
+- necessarily [ˌnesəˈserəli] 必要地
 
 #### 5. In some places a tip is expected, but in others, good service should be expected and ought to be included in the price.
 
@@ -45,10 +46,10 @@
 - In the UK, where people tend to be too polite to complain 在英国，人们往往很有礼貌，不会抱怨；complain [kəmˈpleɪn] 抱怨
 - they might pay the service charge despite quitely complaining that the servcie they received was not up to scratch 尽管他们总是抱怨他们所得到的服务不合格，他们还是付了服务费；despite [dɪˈspaɪt] 尽管，up to scratch 达到标准，scratch [skrætʃ]
 
-#### 9. Choosing your own amount to tip may seem fairer, but should you pay it in chsh or add it on to a credit card payment?
+#### 9. Choosing your own amount to tip may seem fairer, but should you pay it in cash or add it on to a credit card payment?
 
 - seem fairer 似乎更公平；fairer 更公平
-- chsh 现金
+- cash 现金
 - credit card payment 信用卡付款
 
 #### 10. And who will be the recipient?
@@ -88,7 +89,7 @@
 
 - the price you see on the menu reflects the full cost of dining 你在菜单上看到的价格反映了就餐的全部费用；reflect [rɪˈflekt] 反映
 
-#### 18. That might make receiving thd final bill easier to swallow!
+#### 18. That might make receiving the final bill easier to swallow!
 
 - swallow [ˈswɒləʊ] 忍受
 
