@@ -24,6 +24,7 @@
 
 - 一个城市的规范不一定是另一个城市的规范
 - norm [nɔːm] 规范
+- necessarily  [ˌnesəˈserəli] 必要地
 
 #### 5. In some places a tip is expected, but in others, good service should be expected and ought to be included in the price.
 
