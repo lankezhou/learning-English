@@ -24,7 +24,11 @@
 
 - 一个城市的规范不一定是另一个城市的规范
 - norm [nɔːm] 规范
+<<<<<<< HEAD:2019-12/BBC/12-26_the_tipping taboo.md
 - necessarily [ˌnesəˈserəli] 必要地
+=======
+- necessarily  [ˌnesəˈserəli] 必要地
+>>>>>>> bf69aff259298d72efff066a9a3e0621f21d2ca7:2019/2019-12/BBC/12-26_the_tipping taboo.md
 
 #### 5. In some places a tip is expected, but in others, good service should be expected and ought to be included in the price.
 
