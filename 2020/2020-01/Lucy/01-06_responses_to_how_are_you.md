@@ -72,7 +72,7 @@
 
 #### 1. And this can be said in more than one way, it depends on the tone of voice.
 
-- it depends on the tone of voice 这取决于说话的语气
+- it depends on the tone of voice 这取决于说话的语气；tone [təʊn] 语气
 
 #### 1. If I say can't complain, it means my life's amazing but I don't want to brag about it, so I'm just gonna say can't complain.
 
@@ -94,27 +94,101 @@
 - Better than I deserve 比我应得的更好；deserve [dɪˈzɜːv] 应得
 - This is quite tongue in cheek one 这是一种相当戏谑的说法；tongue [tʌŋ]
 
-#### 1. 
+#### 1. Okay, I'm going to give you a couple of silly ones as well if you want to make people laugh or cringe.
 
-#### 1. 
+- a couple of silly ones 几个愚蠢的问题；silly [ˈsɪli] 愚蠢的
+- make people laugh or cringe 让人发笑或畏缩；cringe [krɪndʒ] 畏缩
 
-#### 1. 
+#### 1. If I had a tail, I would wag it.
 
-#### 1. 
+- wag [wæɡ]（动物尾巴）来回摇摆
 
-#### 1. 
+#### 1. And you can also have a couple of flirty ones.
 
-#### 1. 
+- a couple of flirty ones 几个轻浮的；flirty ['flɜːtɪ] 轻浮的
 
-#### 1. 
+#### 1. or I'm great, but I'm totally biassed.
 
-#### 1. 
+- I'm totally biassed 我完全有偏见的；biassed ['baiəst] 有偏见的
 
-#### 1. 
+#### 1. Now, what do you say if you're neither good, nor bad?
 
-#### 1. 
+- 如果你既不好也不坏，你会怎么说
 
-#### 1. 
+#### 1. It's very, very frequently used and just be careful on the pronunciation we don't always pronounce the "L".
+
+- It's very, very frequently used  它被频繁地使用；frequently [ˈfriːkwəntli] 频繁地
+
+#### 1. The next one, not too bad, is again, one that depends on tone of voice.
+
+#### 1. If everything's just really boring and average, you can say, same old, same old really.
+
+- If everything's just really boring and average 如果每件事都很无聊很普通；average [ˈævərɪdʒ] 普通的
+- same old 老样子
+
+#### 1. Another couple which mean you just this close to being bad is I'm alive, or I'm surviving.
+
+#### 1. A couple of funny ones, especially sarcastic ones, they're quite useful.
+
+- sarcastic [sɑːˈkæstɪk] 挖苦的
+
+#### 1. You could say I'm all right now, but there's still time for everything to go horribly wrong.
+
+-  go horribly wrong 发生了严重问题；horribly [ˈhɒrəbli] 可怕地
+
+#### 1. Or a flat one, better now, that I'm talking to you. That's quite a charming one.
+
+-  flat [flæt] 普通的
+- charming [ˈtʃɑːmɪŋ] 迷人的
+
+#### 1. Well, quite a good way to start off a complaint or a negative phrase is to start with, I'm not going to lie...
+
+- start off a complaint or a negative phrase 以抱怨或消极的措辞开头；complaint [kəmˈpleɪnt] 抱怨
+
+#### 1. That is a nice way to prepare someone for the negativity that is about to escape your mouth.
+
+- negativity [ˌneɡəˈtɪvəti] 消极性
+- about to escape your mouth 正要从你嘴里逃出来；about 
+
+#### 1. I'm not doing so well or I'm struggling a bit, these to imply that you're struggling a bit, maybe a little bit mentally or emotionally as well.
+
+- I'm struggling a bit 我有点困难；struggling ['strʌɡlɪŋ]
+- imply [ɪmˈplaɪ] 意味
+- maybe a little bit mentally or emotionally as well 可能在精神上或情感上也有一点；mentally [ˈmentəli] 精神上，emotionally [ɪˈməʊʃənəli] 情绪上
+
+#### 1. The same way with "I'm snowed under" to be snowed under means you've just got too much work, you're completely under pressure.
+
+- I'm snowed under 忙地不可开交
+
+#### 1. Or it's been a tough day, week or year. It's been a bit of a tough week.
+
+-  It's been a bit of a tough week 这是艰难的一周
+
+- tough [tʌf] 艰苦的
+
+#### 1. Watch out for people who say those phrases because sometimes they're reaching out a little bit and might need support.
+
+- watch out 注意
+- reaching out 伸出手
+
+#### 1. Now what happens if you feel bad, but you don't necessarily want to talk about it.
+
+- necessarily [ˌnesəˈserəli] 必要地
+
+#### 1. And if you are feeling ill a nice idiom we can use is, I'm a bit under the weather.
+
+-  a nice idiom we can use is 我们可以使用的一个很好的习语是；idiom [ˈɪdiəm] 习语
+- I'm a bit under the weather 我有点不舒服
+
+#### 1. And finally, a couple of funny ones, you could say, "overworked and underpaid!" I remember there was a teacher who would always say that when I asked him how he was, "how are you," overworked and underpaid, but I'm doing Okay, thank you.
+
+- overworked and underpaid 活多钱少；
+
+#### 1. You could also say, slowly but surely dying actually.
+
+- slowly but surely dying actually 慢慢地但肯定地死去
+
+#### 1. If you want to be really sarcastic, you could say, somewhere between 
 
 #### 1. 
 
