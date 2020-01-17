@@ -49,7 +49,7 @@
 
 #### 10. In the back frying pan here, I've fried the hamburger, and then I mixed it with the tomato sause, and it's bubbling nicely right now.
 
-- it's bubbling nicely right now 现在正在冒泡；bubbling 冒泡
+- it's bubbling nicely right now 现在正在冒泡；bubbling 冒泡，bubble [ˈbʌbl] 冒泡
 
 #### 11. I spend a little bit of time cleaning the house, or cleaning up the house, or tidying up the house.
 
