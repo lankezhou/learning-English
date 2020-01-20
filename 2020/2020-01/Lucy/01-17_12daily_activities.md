@@ -20,7 +20,10 @@
 
 - try following chefs or recipes in the language that you're trying to learn 尝试用你正在学习的语言来学习厨师或食谱；chefs [ʃefs] 厨师，recipes [ˈresəpis] 食谱
 
-#### 1.
+#### 1. And you can learn so much through their cuisine, and their diet, and their eating habits.
+
+- cuisine [kwɪˈziːn] 烹饪
+- diet [ˈdaɪət] 饮食
 
 #### 1.
 
