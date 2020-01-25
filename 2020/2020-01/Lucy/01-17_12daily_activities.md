@@ -25,17 +25,29 @@
 - cuisine [kwɪˈziːn] 烹饪
 - diet [ˈdaɪət] 饮食
 
-#### 1.
+#### 1. Nigella Lawson has the most attractive voice, and the most beautiful accent.
 
-#### 1.
+-  attractive voice 有吸引力声音；attractive [əˈtræktɪv] 吸引人的
 
-#### 1.
+#### 1. He's a little bit more cockney.
 
-#### 1.
+- cockney [ˈkɒkni] 伦敦腔
 
-#### 1.
+#### 1. This part of the video is sponsored by Lingoda, but I'm going to give you highly relevant information that will help you improve your language skills on a daily basis.
 
-#### 1.
+- highly relevant information 高度相关的信息；relevant [ˈreləvənt]   相关的
+
+#### 1. Five minutes on a language app each day will help you improve, but it's not enough on its own to make a huge impact.
+
+- make a huge impact 产生巨大影响
+
+#### 1. make a huge impact on your fluency.
+
+- fluency [ˈfluːənsi] 流利
+
+#### 1. Well, it's basically a really motivating language study challenge.
+
+- motivating 激励
 
 #### 1.
 
