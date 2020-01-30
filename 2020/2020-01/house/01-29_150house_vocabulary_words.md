@@ -135,23 +135,44 @@
 
 - cutting board 切肉板；board [bɔːd]
 
-#### 1. 
+#### 1. On this side of the kitchen are the oven mitts and our spice rack.
 
-#### 1. 
+- oven mitts 防热手套
+- spice rack 调味品架；spice [spaɪs] 香料
 
-#### 1. 
+#### 1. some miscellaneous things on that shelf as well
 
-#### 1. 
+- miscellaneous [ˌmɪsəˈleɪniəs] 混杂的
 
-#### 1. 
+#### 1. most places have a sink with a facet
 
-#### 1. 
+- a sink with a facet 有侧面的水槽；facet [ˈfæsɪt] 
 
-#### 1. 
+#### 1. we have the strainer, or colander, usually a strainer for straining pasta or other things that we're washing.
 
-#### 1. 
+- strainer [ˈstreɪnə(r)] 过滤器
+- colander [ˈkʌləndə(r)] 滤器
+-  usually a strainer for straining pasta 通常是过滤面食的过滤器；pasta [ˈpæstə]  面食
 
-#### 1. 
+#### 1. there's not air conditioning, not regular heating, no dishwasher, no washer or dryer for our clothes
+
+- air conditioning 空调
+- washer [ˈwɒʃə(r)] 洗衣机
+- dryer [ˈdraɪə(r)] 烘干机
+
+#### 1. Typically, they're under the counter and it's kind of part of the furniture.
+
+- furniture [ˈfɜːnɪtʃə(r)] 家具
+
+#### 1. But you can open the dishwasher and see the dish rack.
+
+- dish rack 碗碟架
+
+#### 1. And up here, I have a small dish rack just for more fragile things like these mugs or these glasses.
+
+- fragile things 易碎物；fragile [ˈfrædʒaɪl] 易碎的
+
+#### 1. But you can hand dry things and put them in the rack as well.
 
 #### 1. 
 
