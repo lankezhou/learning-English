@@ -8,112 +8,123 @@
 
 - act out 把…表演出来
 
-#### 1. thanks for reminding me.
+#### 2. thanks for reminding me.
 
 - reminding 提醒
 
-#### 1. you will see words and phrases appear on the screen
+#### 3. you will see words and phrases appear on the screen
 
 - appear on the screen 出现在屏幕上；appear [əˈpɪə(r)] 出现
 
-#### 1. The first argument takes place between two people where one of the people is denying that they did something.
+#### 4. The first argument takes place between two people where one of the people is denying that they did something.
 
 - takes place 发生
 - denying [diˈnaiŋ] 表达否认
 
-#### 1. That doesn't make sense.
+#### 5. That doesn't make sense.
 
 - 这说不通啊
 
-#### 1. There are cookie crumbs all over the table in front of you.
+#### 6. There are cookie crumbs all over the table in front of you.
 
 - cookie crumbs 饼干屑；crumbs [krʌmz] 面包屑
 
-#### 1. I can't stand it when this happens. 
+#### 7. I can't stand it when this happens. 
 
 -  I can't stand it 我忍受不了
 
-#### 1. This is so aggravating.
+#### 8. This is so aggravating.
 
 - aggravating [ˈæɡrəveɪtɪŋ] 令人恼怒的
 
-#### 1. I hope you find the culprit.
+#### 9. I hope you find the culprit.
 
 - culprit [ˈkʌlprɪt] 犯人
 
-#### 1. It was on sale, it was a great deal.
+#### 10. It was on sale, it was a great deal.
 
 - it was a great deal 这是笔好买卖
 
-#### 1. It really gets on my nerves when you do things like that.
+#### 11. It really gets on my nerves when you do things like that.
 
 - gets on my nerves 让我心烦；nerves [nə:vs] 
 
-#### 1. I'm so annoyed.
+#### 12. I'm so annoyed.
 
 - annoyed [əˈnɔɪd] 恼怒的
 
-#### 1. sometimes it just takes awhile
+#### 13. sometimes it just takes awhile
 
 - 有时只是需要一点时间
 
-#### 1. It was last week when you were dropping me off at work, I handed you $100 as I got out of the car.
+#### 14. It was last week when you were dropping me off at work, I handed you $100 as I got out of the car.
 
 - dropping me off at work 送我去上班
 - I handed you $100 我给了你100美元 
 
-#### 1. Hey, no problem, apology accepted.
+#### 15. Hey, no problem, apology accepted.
 
 - apology accepted 我接受你的道歉
 
-#### 1. You can't be serious.
+#### 16. You can't be serious.
 
 - 你一定是在开玩笑
 
-#### 1. 
+#### 17. see the new Avengers movies
 
-#### 1. 
+- Avengers 复仇者
 
-#### 1. 
+#### 18. I have no recollection of you telling me this at all. 
 
-#### 1. 
+- I have no recollection 我不记得了；recollection [ˌrekəˈlekʃn] 回忆
 
-#### 1. 
+#### 19. You're just making this up.
 
-#### 1. 
+- 你只是在瞎编
 
-#### 1. 
+#### 20. That's it! I'm done, you're grounded.
 
-#### 1. 
+- I'm done 我完了
+- you're grounded 你被禁足了；grounded [ˈɡraʊndɪd] 
 
-#### 1. 
+#### 21. He's like magic on the field
 
-#### 1. 
+- 他就像球场上的魔术师
+- magic [ˈmædʒɪk]
 
-#### 1. 
+#### 22. He has such an explosive and aggressive playing style.
 
-#### 1. 
+- explosive and aggressive playing style 爆发力和侵略性的打法；explosive [ɪkˈspləʊsɪv]，aggressive [əˈɡresɪv]
 
-#### 1. 
+#### 23. He's unstoppable.
 
-#### 1. 
+- unstoppable [ʌnˈstɒpəbl] 无法阻挡的
 
-#### 1. 
+#### 24. I'm still not convinced though.
 
-#### 1. 
+- convinced [kənˈvɪnst] 不服气
 
-#### 1. 
+#### 25. He's such a great physical and technical player that the other team has trouble pushing him off the ball.
 
-#### 1. 
+- a great physical and technical player 一个伟大的身体和技术球员；technical [ˈteknɪkl]
 
-#### 1. 
+#### 26. Plus, have you seen how high he can jump when he needs to head the ball.
 
-#### 1. 
+- plus 另外
 
-#### 1. 
+#### 27. Im my opinion being able to jump high and head the ball is not a good measure of a player's overall abilities.
 
-#### 1. 
+- a player's overall abilities 球员的整体能力；overall ['əʊvərɔːl] 整体的
 
-#### 1. 
+#### 28. You have to admit though, that Messi excels at covering the whole field.
 
-#### 1. 
+- that Messi excels at covering the whole field 梅西擅长覆盖全场；excel [ɪkˈsel] 擅长
+
+#### 29. He sometimes plays defense and helps his team get out of a bad situation.
+
+- He sometimes plays defense 他有时会防守；defense [dɪ'fens] 防卫
+
+#### 30. At least Ronaldo's team plays really good defense and allows him to stay in a good scoring position all the time.
+
+- at least 至少
+- good scoring position 好得分的位置；scoring ['skɔːrɪŋ] 得分
