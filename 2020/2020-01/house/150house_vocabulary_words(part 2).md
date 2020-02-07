@@ -112,13 +112,22 @@
 - pane [peɪn]
 - windowpane 窗玻璃
 
-#### 1. 
+#### 1. we have hardwood floors
 
-#### 1. 
+- hardwood floors 硬木地板；hardwood [ˈhɑːdwʊd] 硬木
 
-#### 1. 
+#### 1. We don't have any carpet in our house and that's mainly because it's an older apartment, so it has wood.
 
-#### 1. 
+- carpet [ˈkɑːpɪt] 地毯
+
+#### 1. but carpets and rugs, rugs ard just removable small carpets
+
+- rug [rʌɡ] 小地毯（rug的复数）
+- removable [rɪˈmuːvəbl] 可移动的
+
+#### 1. This is not laminate. In the kitchen, you saw laminate.
+
+- laminate [ˈlæmɪnət] 层压板
 
 #### 1. 
 
