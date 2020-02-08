@@ -74,7 +74,7 @@
 
 #### 16. The falling leaves reminded me of bittersweet memories. Oh gosh! Onward!
 
-- bittersweet memoriesv 苦涩而甜蜜的记忆；bittersweet [ˌbɪtəˈswiːt] 苦乐参半
+- bittersweet memories 苦涩而甜蜜的记忆；bittersweet [ˌbɪtəˈswiːt] 苦乐参半
 - Onward [ˈɒnwəd] 向前
 
 #### 17. Thanksgiving is the busiest traveling time of the year.
